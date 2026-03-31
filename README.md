@@ -1,0 +1,1 @@
+# Jujutsu_kaisen_api2
